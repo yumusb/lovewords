@@ -1,3 +1,3 @@
 # lovewords 
 
-> DeMo :[MyLoveWords](http://u.i5.gs/)
+> DeMo :[MyLoveWords](http://u.ourpast.cn/)
